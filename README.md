@@ -18,7 +18,7 @@
 ---
 [![](https://visitcount.itsvg.in/api?id=Trajic5286&icon=0&color=0)](https://visitcount.itsvg.in)
 
-  ## 💰 Buy me a coffe and contribute at ...
+  ## 💰 Buy me a coffee and contribute at ...
  8534894982@upi 
 
   
